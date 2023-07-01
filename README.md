@@ -6,7 +6,7 @@
 Here are some ideas to get you started:
 
 - tindibrown12@gmail.com
-- that one dev
+- java?
 - c++ is goated
 
 ## Github
