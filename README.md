@@ -1,4 +1,4 @@
-### Hi there, hope you like my projects...dont cringe too hard at them.
+### Hi there, hope you like my projects.
                           
 
 - tindibrown12@gmail.com
